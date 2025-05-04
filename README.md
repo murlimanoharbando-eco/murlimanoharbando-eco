@@ -9,7 +9,7 @@
 + Python
 #### 🤝 Looking forward for collaboration on
 + Academic Reseach around Economics
-#### 📬 Ping me here on [Linkedin](https://www.linkedin.com/in/murlimanohar0728/)
+#### 📬 Ping me here on [Linkedin](https://www.linkedin.com/in/murlimanohar0728/) | [Instagram](https://www.instagram.com/msq0728/)
 #### ✌See you, Cheers!!
 
 
